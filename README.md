@@ -1,2 +1,0 @@
-# shubhendu
-indian_post
